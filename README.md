@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Tia
+# 👋 Hi, I'm Henna
 
 Still a banker by day 💼  
 Learning to code by night 💻  
